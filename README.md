@@ -1,6 +1,6 @@
 # Gamedemons
 
-I'm a easy going software developer who likes 
+I'm a easy going software developer who likes to slack off all day long. Watching anime, reading manga and novels are some of my favourite pasttimes
 
 - 👋 Hi, I’m @manthan-softraw
 - 👀 I’m interested in ...
